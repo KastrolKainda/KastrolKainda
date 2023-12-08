@@ -1,8 +1,7 @@
-Hi, I’m @KastrolKainda.
+Hi, I’m Kastrol Kainda.
 I’m interested in Programming
 and am currently learning Computer Science.
-I’m looking to collaborate with anyone.
-Please feel free to reach me out on WhatSapp [+260978027616].
+Am looking to collaborate with anyone.
 Thank You Guys!!
 
 <!---
